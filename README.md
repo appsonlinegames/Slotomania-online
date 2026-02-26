@@ -1,0 +1,2 @@
+# Slotomania-online
+Slotomania-online
